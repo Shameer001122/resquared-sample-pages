@@ -1,0 +1,1 @@
+# resquared-sample-pages
