@@ -1,1 +1,1 @@
-# resquared-sample-pages
+Please unzip the 5003 pages folder. Thank!
